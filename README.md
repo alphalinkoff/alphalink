@@ -4,5 +4,5 @@ This site serves no purpose as of now so heres a cat
 
 
 
-https://user-images.githubusercontent.com/93359470/151292474-156fbbf1-5e6e-4c44-b72c-48302c18d11d.mp4
 
+![index](https://user-images.githubusercontent.com/93359470/151292831-77a6b110-8292-4cae-b0ce-71b8d84bd136.jpg)
